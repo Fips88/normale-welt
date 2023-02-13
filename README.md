@@ -1,0 +1,2 @@
+# normale-welt
+erst denken
